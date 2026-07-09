@@ -1,1 +1,0 @@
-# sub1nitiowaru.github.io
